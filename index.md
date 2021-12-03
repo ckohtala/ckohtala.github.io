@@ -55,7 +55,7 @@ Please see the full Code of Conduct. In brief:
 **This venue is a community, which is different from a “forum” or a “debate hall”. A community supports the emotional and intellectual needs of members so that they can engage in discussion and collaborative work.**
 
 
-The Caring Community Guidelines are for online groups of people committed to exploring the p2p, or commons dynamic, with the awareness, sensitivity and in-formation of intersectionality. We welcome heterodox perspectives that may be less addressed in other forums (Marxist, Communist, Anarchist, Feminist, Postcolonial, Racial Justice Positive, Queer, Hacker and Pirate, disabled, neurodiverse, and other minorised cultures.
+The Caring Community Guidelines are for online groups of people committed to exploring the p2p, or commons dynamic, with the awareness, sensitivity and in-formation of intersectionality. We welcome heterodox perspectives that may be less addressed in other forums (Marxist, Communist, Anarchist, Feminist, Postcolonial, Racial Justice Positive, Queer, Hacker and Pirate, disabled, neurodiverse, and other minorised cultures).
 
 
 We recognise that this requires us to have *challenging conversations* in our community about privilege, power, history, culture, inequality, pain, injustice and trauma. Our goal is to have these dialogues and debates from a place of compassion that honours our shared humanity. We recognise this may require us to *level up our conversational skills*, both as individuals and as a collective. Hence the spirit of learning together must try to describe this process in detail. We believe this kind of work is transformative, and any learning here will initiate similar changes in the other communities we participate in.
